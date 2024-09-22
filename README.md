@@ -1,0 +1,7 @@
+- Hola, Soy @Samir-Geronimo-Zeta-Benites y estudió la carrera de Ingeniería de Sistemas cursando el septimo ciclo.
+- Lo que me interesa es poder seguir creciendo y aprendiendo de las cosas que puedo encontrar en los distintos repositorio o construyendo los mios propios.
+- Actualmente estoy aprendiendo programación de aplicaciónes web, móviles, patrones de diseño de realidad virtual y la creación de un sistema de IA con python.
+- Estoy buscando colaborar con empresas que puedan brindarme una oportunidad, teniendo en cuenta que recién estoy comenzando en este mundo pero con muchas ganas de  aprender.
+- Pueden llegar a mi a través de mi correo @samirzetabenites18@gmail.com
+- Pronombres: Samicho
+- Como dato curioso, me gusta mucho la música, ambientes tranquilos pero laborables, tener una coordinación y organización de casi todo y poder tener siempre un café a mi lado que es mi fiel acompañante en todo este camino <3 .
